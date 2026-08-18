@@ -1,6 +1,6 @@
 # Eugene Khaw
 **B.S. Mechanical & Computer-Aided Engineering Graduate**
-[LinkedIn](https://linkedin.com/in/your-profile) | eugenekhaw02@gmail.com
+[LinkedIn](https://www.linkedin.com/in/eugenekhaw/) | eugenekhaw02@gmail.com
 
 Mechanical Engineering Graduate with a strong foundation in design principles, specializing in Precision Design and Mechanical R&D. Incoming MSc Candidate in Advanced Mechanical Engineering at the University of Sheffield (Expected Sep 2027). 
 
